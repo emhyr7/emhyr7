@@ -1,3 +1,1 @@
-fart, poop, turd, butt
-
-what do they all have in common? they're all 4 letters
+for cool code, visit https://gist.github.com/emhyr7
